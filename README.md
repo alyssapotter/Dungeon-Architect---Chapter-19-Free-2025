@@ -1,7 +1,8 @@
 # Dungeon Architect Chapter 19 Free 2025
 **Dungeon Architect** is a rising fantasy manhwa (Korean webtoon) that blends **strategy, magic, and dungeon building** into a gripping tale. As of April 2025, **Chapter 19** is available and continues the epic journey of Kella, a reincarnated map designer, now crafting the ultimate dungeon to challenge the world.
 
-<h3 tabindex="-1" class="heading-element" dir="auto">🔴👉Dungeon Architect Chapter 1 To 19: <a href="https://video2leaks.com/" rel="nofollow"> Read Now Chapter 1 To 19</a></h3> 
+<h3 tabindex="-1" class="heading-element" dir="auto">🔴👉Dungeon Architect Chapter 1 To 19: <a href="https://video2leaks.com/" rel="nofollow"> Read Now Chapter 1 To 19</a></h2> 
+
 
 ## ❓ What Is Dungeon Architect?
 
